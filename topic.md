@@ -14,6 +14,8 @@ Since I purchases my first IPhone from [Verizon](https://www.verizonwireless.com
 * IWatch (Series 2)
 * Mac Book
 
+![Apple Products](http://mobiledevicemedics.com/wp-content/uploads/2017/11/lp-reuse-versa-201503a.png)
+
 When Apple was founded on April 1, 1976, there was no way [Steve Jobs](https://www.inc.com/larry-kim/43-surprising-facts-about-steve-jobs.html), Steve Wozniak and Ronald Wayne could have invisioned just how successful the company would become.  In early 2015, Apple became the first ever $700 billion company.  More recently, Apple [overtook Google](http://www.cbc.ca/news/world/photos/apple-overtakes-google-as-world-s-most-valuable-brand-1.3090892) as the most valuable brand in the world. Now, one of the original Apple computers sold for more than $387,000 in 2013.  
 
 ### Fun Facts About Apple
