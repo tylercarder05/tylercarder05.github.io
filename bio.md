@@ -1,5 +1,5 @@
 [Home](https://tylercarder05.github.io)
-
+![Tyler](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/13327360_1545802965728946_11647624485108813_n.jpg?oh=6aa2cf55c162aa69653d584ab01ac7da&oe=5B1B72B8)
 # Tyler Carder - An Orioles Fan from the Beginning
 
 I was born in Herleen, Netherlands.  My father was enlisted in the Air Force and was station there.  We returned to the United States and lived in Wyoming and New Mexico.  Our family traveled to: 
