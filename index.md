@@ -22,6 +22,6 @@ In 1954 Baltimore, MD welcomed the Orioles. The **Baltimore** **Orioles** are an
 
 #### To Purchase Tickets go to [Orioles Tickets Page](https://www.viagogo.com/ww/Sports-Tickets/MLB/MLB-Regular-Season/Baltimore-Orioles-Tickets?AffiliateID=49&adposition=1t1&PCID=PSROWGOOSPOBALTIBA6FC23B5-000000&AdID=242807031562&MetroRegionID=&psc=&psc=&ps=&ps=&ps_p=0&ps_c=833478232&ps_ag=41413354263&ps_tg=kwd-295125001439&ps_ad=242807031562&ps_adp=1t1&ps_fi=&ps_fi=&ps_li=&ps_li=&ps_lp=1009666&ps_n=g&ps_d=c&gclid=EAIaIQobChMIg-z88-i42QIV0AMqCh3PTADTEAAYASAAEgIp7vD_BwE)
 
-### [Tyler Carder's Biography](http://tylercarder05.github.io/bio.md)
+### [Tyler Carder's Biography](http://tylercarder05.github.io/bio)
 
-### [Tyler Carder's Topic](http://tylercarder05.github.io/topic.md)
+### [Tyler Carder's Topic](http://tylercarder05.github.io/topic)
