@@ -2,7 +2,16 @@
 
 # Tyler Carder - An Orioles Fan from the Beginning
 
-I was born in Herleen, Netherlands.  My father was enlisted in the Air Force and was station there.  We returned to the United States and lived in Wyoming and New Mexico.  Our family traveled to Seattle, Cincinatti, Phoenix, Denver, Chicago, Philadelphia and Baltimore to attend baseball games.  We continue the tradition today to attend baseball games at different stadiums across the United States. 
+I was born in Herleen, Netherlands.  My father was enlisted in the Air Force and was station there.  We returned to the United States and lived in Wyoming and New Mexico.  Our family traveled to: 
+* Seattle 
+* Cincinatti 
+* Phoenix 
+* Denver 
+* Chicago 
+* Philadelphia and 
+* Baltimore 
+
+Just to attend baseball games.  We continue the tradition today to attend baseball games at different stadiums across the United States. 
 
 At an early age I became an Orioles fan watching Cal Ripken, Jr. play for the Baltimore Orioles Professional Baseball Team.  At age 9 in Seattle, Washington, while the Orioles played the Seattle Mariners, I received my first Cal Ripken, Jr. autographed baseball.  From that moment on I was a die hard loyal **"O"** Fan.   
 
